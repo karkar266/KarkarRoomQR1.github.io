@@ -1,1 +1,1 @@
-# karkarRoom1.github.io
+# KarkarRoomQR1.github.io
